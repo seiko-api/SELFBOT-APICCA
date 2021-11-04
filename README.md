@@ -32,7 +32,7 @@
 ----------
 
 <p align="center">
-  <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://a.top4top.io/p_2081imvxm1.jpg" />
+  <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://telegra.ph/file/600c3be2f5431fa0cf854.jpg" />
 </p>
 
 ## ```GROUP SUPPORT```
