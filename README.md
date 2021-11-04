@@ -25,10 +25,6 @@
 
 [`Click Here`](https://github.com/xcz404/SELFBOT-APICCA/blob/master/rafa.json#L1)
 
-<p align="center">
-  <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://a.top4top.io/p_20888ybra1.jpg" />
-</p>
-
 ## ```HOW TO DEPLOY```
 
 [`Click Here For Tutorial`](https://youtu.be/5HgB__wARjM)<br>
