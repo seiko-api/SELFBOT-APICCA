@@ -35,7 +35,7 @@
   <a href="https://youtu.be/_CP2_1Yqauo"><img src="https://telegra.ph/file/600c3be2f5431fa0cf854.jpg" />
 </p>
 
-## ```GROUP SUPPORT```
+## ```GROUP INFO UPDATE```
 
 - [`Info Update`](https://chat.whatsapp.com/JxVJ1eNnklBBAfWMssWpqW)
 
